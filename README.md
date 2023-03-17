@@ -4,7 +4,7 @@
 ![yo](https://user-images.githubusercontent.com/128098721/225923578-0d090fa6-c256-403b-9ba6-339b5cb52171.jpg)
 
 ## Mis pasatiempos
-* Jugar y ver fútbol (hincha del mas grande):soccer:
+* Jugar y ver fútbol (hincha de River):soccer:
 * Leer, el último libro que leí fue "never finished" de david goggins :book:
 * Escuchar música :musical_note:
 * Entrenar :muscle:
